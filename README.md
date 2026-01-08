@@ -4,7 +4,7 @@
 📍 GMT+4  
 📞 +971 55 542 0153  
 📧 tmighty834@gmail.com  
-🔗 LinkedIn · GitHub  
+🔗 [LinkedIn](https://www.linkedin.com/in/theodore-mighty-engineer/)
 
 ---
 
